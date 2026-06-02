@@ -1,5 +1,4 @@
-# Devonshire-Consumer-Insights
-
+<img width="1054" height="1492" alt="image" src="https://github.com/user-attachments/assets/fa4cffee-24db-4c0a-819a-e17326ec7490" />
 
 
 
