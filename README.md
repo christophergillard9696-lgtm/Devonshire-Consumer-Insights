@@ -26,6 +26,8 @@ Secondly the observations were done by foot, visiting the giftshops across Torba
 >tallys
 >notable items
 
+Then we sample from our findings and see if we can turn some product.
+
 # 🎬 Preview:
 
 
